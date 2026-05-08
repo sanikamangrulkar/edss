@@ -1,5 +1,5 @@
 Practical 01- 
-https://drive.google.com/file/d/1bg3MddmgBIGXbJoWBwEdnrQWO9bVycbJ/view?usp=drivesdk
+https://drive.google.com/file/d/1QKw32ZgrEIyGdFFMqPg1dZH2zhxASz3v/view?usp=drivesdk
 
 Practical 02-
 https://drive.google.com/file/d/1eEke9YICZv-efq9y9Igs4Sm6GoyaHxSL/view?usp=drive_link
